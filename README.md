@@ -1,0 +1,1 @@
+# Bai2_cong2so
